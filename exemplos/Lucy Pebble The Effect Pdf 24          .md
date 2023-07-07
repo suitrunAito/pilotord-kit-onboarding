@@ -1,0 +1,29 @@
+
+ 
+# The Effect: A Clinical Romance by Lucy Prebble
+ 
+The Effect is a play by Lucy Prebble, the award-winning writer of Enron and Secret Diary of a Call Girl. It explores the questions of love, sanity, neurology and medicine through the story of two young volunteers, Tristan and Connie, who agree to take part in a clinical drug trial for a new antidepressant. As they fall in love under the influence of the drug, they wonder if their feelings are real or just a side effect. Meanwhile, the doctors supervising the trial face their own ethical dilemmas and personal issues.
+ 
+The play was first performed at the National Theatre's Cottesloe Theatre in London from November 2012 to February 2013, starring Billie Piper and Jonjo O'Neill. It received critical acclaim and won the Critics' Circle Award for Best New Play. The Guardian called it "a richly rewarding play that explores questions of sanity, neurology and the limits of medicine" [^1^]. The play was also performed off-Broadway at the Barrow Street Theatre in New York from March to September 2016, starring Susannah Flood and Carter Hudson.
+ 
+**Download File »»» [https://www.google.com/url?q=https%3A%2F%2Furlin.us%2F2uM6vM&sa=D&sntz=1&usg=AOvVaw3PYzMd6ZV8OUArhmjDP9c-](https://www.google.com/url?q=https%3A%2F%2Furlin.us%2F2uM6vM&sa=D&sntz=1&usg=AOvVaw3PYzMd6ZV8OUArhmjDP9c-)**
+
+
+ 
+The Effect is available as a paperback book published by Bloomsbury Publishing [^2^], and as a Kindle ebook [^3^]. You can also read a preview of the book on Google Books [^1^] . The play is suitable for readers who enjoy drama, psychology, romance and contemporary issues.
+ 
+Download Lucy Pebble The Effect play script pdf,  Lucy Pebble The Effect summary and analysis pdf,  The Effect by Lucy Pebble ebook free download,  How to read Lucy Pebble The Effect online pdf,  Lucy Pebble The Effect review and discussion pdf,  The Effect Lucy Pebble pdf full text,  Lucy Pebble The Effect themes and characters pdf,  The Effect play by Lucy Pebble pdf format,  Lucy Pebble The Effect quotes and citations pdf,  The Effect Lucy Pebble pdf book,  Lucy Pebble The Effect theatre production pdf,  The Effect by Lucy Pebble pdf version,  Lucy Pebble The Effect plot and structure pdf,  The Effect Lucy Pebble pdf file,  Lucy Pebble The Effect genre and style pdf,  The Effect play script Lucy Pebble pdf,  Lucy Pebble The Effect setting and context pdf,  The Effect Lucy Pebble pdf document,  Lucy Pebble The Effect criticism and feedback pdf,  The Effect by Lucy Pebble pdf download link,  Lucy Pebble The Effect original cast and crew pdf,  The Effect Lucy Pebble pdf online,  Lucy Pebble The Effect awards and nominations pdf,  The Effect play by Lucy Pebble pdf free,  Lucy Pebble The Effect inspiration and influences pdf,  The Effect Lucy Pebble pdf ebook,  Lucy Pebble The Effect adaptation and adaptation pdf,  The Effect play script by Lucy Pebble pdf,  Lucy Pebble The Effect performance and reception pdf,  The Effect Lucy Pebble pdf read online,  Lucy Pebble The Effect trivia and facts pdf,  The Effect by Lucy Pebble play script pdf free download,  Lucy Pebble The Effect symbolism and imagery pdf,  The Effect play script by Lucy Pebble pdf online,  Lucy Pebble The Effect comparison and contrast pdf,  The Effect by Lucy Pebble play script pdf format,  Lucy Pebble The Effect message and meaning pdf,  The Effect play script by Lucy Pebble pdf file,  Lucy Pebble The Effect history and background pdf,  The Effect by Lucy Pebble play script pdf version,  Lucy Pebble The Effect relevance and impact pdf,  The Effect play script by Lucy Pebble pdf document,  Lucy Pebble The Effect sources and references pdf,  The Effect by Lucy Pebble play script pdf book,  Lucy Pebble The Effect techniques and devices pdf,  The Effect play script by Lucy Pebble pdf ebook,  Lucy Pebble The Effect questions and answers pdf,  The Effect by Lucy Pebble play script pdf online free
+  
+The Effect is not only a love story, but also a play that tackles the complex and controversial issues of mental health, neuroscience, pharmacology and ethics. It questions the role of drugs in treating depression, the nature of free will and personal responsibility, and the validity of scientific objectivity and experimentation. The play also examines the relationships between doctors and patients, researchers and subjects, and lovers and friends.
+ 
+The play has been praised for its witty dialogue, engaging characters, emotional impact and intellectual depth. It has also been compared to other works that explore similar themes, such as Tom Stoppard's Arcadia, Michael Frayn's Copenhagen and David Auburn's Proof. The play has been described as "a richly rewarding play that explores questions of sanity, neurology and the limits of medicine" [^1^], "a provocative and challenging play" [^2^], and "a knockout" [^3^].
+ 
+The Effect is a play that will make you laugh, cry, think and feel. It is a play that will challenge your assumptions and stimulate your curiosity. It is a play that will stay with you long after the curtain falls.
+  
+## How to Read The Effect
+ 
+If you are interested in reading The Effect, you have several options. You can buy the paperback book or the Kindle ebook from online retailers such as Amazon or Booktopia. You can also borrow the book from your local library or a friend. Alternatively, you can watch a recorded performance of the play on the National Theatre's website or YouTube channel. You can also look for upcoming productions of the play in your area or online.
+ 
+Whichever way you choose to read The Effect, you will not regret it. It is a play that will entertain you, enlighten you and inspire you. It is a play that will make you question what you know and feel about yourself and others. It is a play that will make you appreciate the power and mystery of the human mind and heart.
+ 8cf37b1e13
+ 
